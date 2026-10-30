@@ -1,1 +1,1 @@
-# diwali_wishes
+# Diwali Wishes
